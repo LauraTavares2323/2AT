@@ -1,0 +1,1 @@
+varentinha minha amiguinha querida
